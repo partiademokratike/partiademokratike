@@ -27,7 +27,7 @@ Ne besojmë në fuqinë e komunitetit dhe të mendjes së hapur. Nëse jeni zhvi
 Qëndroni të informuar me zhvillimet tona më të fundit:
 - [Faqja Zyrtare](https://pd.al)
 - [Facebook](https://www.facebook.com/partiademokratike)
-- [Instagram](https://www.instagram.com/partiademokratike)
+- [Instagram](https://www.instagram.com/pdshqiperi)
 - [X (Twitter)](https://twitter.com/pdshqiperi)
 
 ---
